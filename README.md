@@ -6,5 +6,5 @@
 - 😄 Pronouns: any pronouns
 - ⚡ Fun fact: I'm brazilian yey
 
-![]()
-https://media1.tenor.com/m/T27cGOnTUysAAAAC/bald-alhaitham-alhaitham.gif
+![](https://media1.tenor.com/m/T27cGOnTUysAAAAC/bald-alhaitham-alhaitham.gif)
+
