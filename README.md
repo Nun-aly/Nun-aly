@@ -10,6 +10,6 @@
 
 ![](https://media1.tenor.com/m/-YU0_-BHeRMAAAAd/neuvi-zhong-toothless-neuvillette.gif) ![](https://media1.tenor.com/m/rpNypJIBRTQAAAAd/dance-vibing.gif)
 
-![](https://media1.tenor.com/m/UyjbZDEZkPEAAAAd/worried-monkey-worried.gif) ![](https://media1.tenor.com/m/ATWvJXuix5UAAAAC/omniscient-reader%27s-viewpoint-omniscient-reader.gif)
+![](https://media1.tenor.com/m/UyjbZDEZkPEAAAAd/worried-monkey-worried.gif) ![](https://media1.tenor.com/m/ATWvJXuix5UAAAAC/omniscient-reader%27s-viewpoint-omniscient-reader.gif) 
 
-![](https://media1.tenor.com/m/ucPDLxi-pqkAAAAd/giantsbetta-small-monkey.gif) ![](https://media.tenor.com/MQCDOGVNWAcAAAAi/jujutsu-kaisen-geto-suguru-stairs.gif)
+![](https://media1.tenor.com/m/ucPDLxi-pqkAAAAd/giantsbetta-small-monkey.gif) ![](https://media1.tenor.com/m/jxBEZ0IZA0oAAAAd/gojo-roblox.gif) ![](https://media1.tenor.com/m/yPTb4CQcumsAAAAC/xd-meme.gif)
