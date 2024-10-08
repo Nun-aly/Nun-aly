@@ -13,3 +13,5 @@
 ![](https://media1.tenor.com/m/UyjbZDEZkPEAAAAd/worried-monkey-worried.gif) ![](https://media1.tenor.com/m/ATWvJXuix5UAAAAC/omniscient-reader%27s-viewpoint-omniscient-reader.gif) 
 
 ![](https://media1.tenor.com/m/ucPDLxi-pqkAAAAd/giantsbetta-small-monkey.gif) ![](https://media1.tenor.com/m/jxBEZ0IZA0oAAAAd/gojo-roblox.gif) ![](https://media1.tenor.com/m/yPTb4CQcumsAAAAC/xd-meme.gif)
+
+![](https://media1.tenor.com/m/e8-36w65OA4AAAAC/ed-truck.gif) 
