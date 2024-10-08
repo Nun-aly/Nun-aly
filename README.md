@@ -2,6 +2,6 @@
 - 👀 I’m interested in: coding and visual art
 - 🌱 I’m currently learning: english and coding
 - 💞️ I’m looking to collaborate on: nothing
-- 📫 How to reach me: do not.
+- 📫 How to reach me: @Nunaly on tumblr, @nun-aly on instagram.
 - 😄 Pronouns: any pronouns
 - ⚡ Fun fact: I'm brazilian yey
